@@ -1,1 +1,0 @@
-# 2022-1-OSSP2-Bumeok_Jjikmeok-6
